@@ -1,1 +1,0 @@
-# karina-kashin-site
